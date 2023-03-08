@@ -1,0 +1,1 @@
+print("Prism v2 crack 100%%%% loaded enjoy the free rat")
